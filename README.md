@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shashank.jangid17@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11NlGDM-fw2YjI47ZeFnIwALI3z3Iw8fF/view?usp=sharing](https://drive.google.com/file/d/11NlGDM-fw2YjI47ZeFnIwALI3z3Iw8fF/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11NlGDM-fw2YjI47ZeFnIwALI3z3Iw8fF/view?usp=sharing](https://drive.google.com/file/d/1uvdsm2djxiIsowuwL6BclKj927Pz6CjZ/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
