@@ -1,6 +1,8 @@
 <h1 align="center">Hi 👋, I'm Shashank Jangir</h1>
 <h3 align="center">A passionate Full Stack Developer from India</h3>
 
+- 🧑‍💻 Looking For Job
+
 - 💬 Ask me about **Full Stack Development**
 
 - 📫 How to reach me **shashank.jangid17@gmail.com**
